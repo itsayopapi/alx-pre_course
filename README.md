@@ -1,2 +1,2 @@
 My first readme
-My name is Ayo
+Alx is so amazing 
